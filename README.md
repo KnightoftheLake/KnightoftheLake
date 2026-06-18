@@ -7,8 +7,8 @@ ${\textsf{\color{#5c5483}something something..}}$
 ‧₊˚| [strawpage](https://thekingsshadow.straw.page/) -★- [atabook](https://thekingsshadow.atabook.org/?page=1) -★- [pronouns.cc](https://pronouns.cc/@TheKingsShadow) |‧₊˚
 </div>
 
-<img width="820" height="461" alt="17817567043182483611493395039254" src="https://github.com/user-attachments/assets/081bf688-8a25-4f49-bb18-e3ff08eb3442" />
+<img width="2048" height="1146" alt="17817615380151130875210345767554" src="https://github.com/user-attachments/assets/eae3b40a-73c9-474e-88ce-e4cf0afb1e1e" />
 
 <p align="center">
-${\textsf{\color{#5c5483}placeholder..}}$
+${\textsf{\color{#5c5483}image+pfp credits-valsomethingsimdthing}}$
   
