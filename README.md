@@ -1,7 +1,7 @@
 Wip , test perhaps...
 
 <p align="center">
-${\textsf{\color{#5c5483}something something..}}$
+quote or something...
 
   <img width="734" height="164" alt="17817622552905897123718462879480" src="https://github.com/user-attachments/assets/23d0ed0f-c50a-44db-8964-f27ed5f7c0ac" />
 
@@ -15,4 +15,12 @@ ${\textsf{\color{#5c5483}something something..}}$
 
 <p align="center">
 ${\textsf{\color{#5c5483}image+pfp credits-valsomethingsimdthing}}$
+
+<p align="center">
+he/they , 19 , aroace
+
+
+
+<img width="734" height="116" alt="17817633717776878554477519410369" src="https://github.com/user-attachments/assets/3ec17f5b-af2f-4e3c-b4ac-2c751755d170" />
+
   
