@@ -24,4 +24,4 @@
 
 <img width="734" height="116" alt="17817633717776878554477519410369" src="https://github.com/user-attachments/assets/3ec17f5b-af2f-4e3c-b4ac-2c751755d170" />
 
-⏔⏔⏔⏔ -꒰ 𝒊𝒎𝒂𝒈𝒆/𝒑𝒇𝒑 𝒄𝒓𝒆𝒅𝒊𝒕𝒔 - [𝒗𝒂𝒍𝒆𝒏𝒓𝒆𝒑𝒆𝒕𝒕𝒐](https://www.tumblr.com/valenrepetto/761466087115194368/armor-study-for-lance-and-wip-drop-i-wonder-what?source=share) ꒱- ⏔⏔⏔⏔
+⏔⏔⏔⏔⏔ -꒰ 𝒊𝒎𝒂𝒈𝒆/𝒑𝒇𝒑 𝒄𝒓𝒆𝒅𝒊𝒕𝒔 - [𝒗𝒂𝒍𝒆𝒏𝒓𝒆𝒑𝒆𝒕𝒕𝒐](https://www.tumblr.com/valenrepetto/761466087115194368/armor-study-for-lance-and-wip-drop-i-wonder-what?source=share) ꒱- ⏔⏔⏔⏔⏔
