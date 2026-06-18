@@ -6,7 +6,7 @@ quote or something...
   <img width="734" height="164" alt="17817622552905897123718462879480" src="https://github.com/user-attachments/assets/23d0ed0f-c50a-44db-8964-f27ed5f7c0ac" />
 
 
-‧₊˚| [strawpage](https://thekingsshadow.straw.page/) -★- [atabook](https://thekingsshadow.atabook.org/?page=1) -★- [pronouns.cc](https://pronouns.cc/@TheKingsShadow) |‧₊˚
+‧₊˚| [𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://thekingsshadow.straw.page/) -★- [𝕬𝒕𝒂𝒃𝒐𝒐𝒌](https://thekingsshadow.atabook.org/?page=1) -★- [𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄](https://pronouns.cc/@TheKingsShadow) |‧₊˚
 </div>
 
 
@@ -19,8 +19,14 @@ ${\textsf{\color{#5c5483}image+pfp credits-valsomethingsimdthing}}$
 <p align="center">
 he/they , 19 , aroace
 
+<p align="center">
+  𝒘𝟐𝒊 𝒂𝒍𝒘𝒂𝒚𝒔 - 𝑰 𝒑𝒓𝒆𝒇𝒆𝒓 𝒕𝒂𝒍𝒌𝒊𝒏𝒈 𝒕𝒉𝒓𝒐𝒖𝒈𝒉 𝒘𝒉𝒊𝒔𝒑𝒆𝒓 𝒐𝒓 𝒑𝒂𝒓𝒕𝒚 𝒄𝒉𝒂𝒕𝒔 𝒂𝒏𝒅 𝒎𝒊𝒈𝒉𝒕 𝒏𝒐𝒕 𝒔𝒂𝒚 𝒉𝒊 𝒇𝒊𝒓𝒔𝒕 𝒖𝒏𝒍𝒆𝒔𝒔 𝒘𝒆'𝒓𝒆 𝒄𝒍𝒐𝒔𝒆 // 𝒎𝒊𝒈𝒉𝒕 𝒂𝒍𝒔𝒐 𝒃𝒆 𝒐𝒇𝒇𝒕𝒂𝒃 𝒐𝒓 𝒅𝒓𝒂𝒘𝒊𝒏𝒈
+
+<p align="center">
+  +
+  
+<p align="center">
+𝑭𝒓𝒊𝒆𝒏𝒅 𝒓𝒆𝒒𝒖𝒆𝒔𝒕𝒔 𝒂𝒓𝒆 𝒅𝒊𝒔𝒂𝒃𝒍𝒆𝒅 𝒔𝒐 𝒊𝒇 𝒘𝒆'𝒗𝒆 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒆𝒅 𝒇𝒐𝒓 𝒂 𝒍𝒊𝒕𝒕𝒍𝒆 𝒃𝒊𝒕, 𝒂𝒔𝒌 𝒊𝒇 𝒚𝒐𝒖'𝒅 𝒍𝒊𝒌𝒆 𝒕𝒐 𝒃𝒆 𝒂𝒅𝒅𝒆𝒅!!
 
 
 <img width="734" height="116" alt="17817633717776878554477519410369" src="https://github.com/user-attachments/assets/3ec17f5b-af2f-4e3c-b4ac-2c751755d170" />
-
-  
