@@ -21,7 +21,12 @@
 <p align="center">
 𝑭𝒓𝒊𝒆𝒏𝒅 𝒓𝒆𝒒𝒖𝒆𝒔𝒕𝒔 𝒂𝒓𝒆 𝒅𝒊𝒔𝒂𝒃𝒍𝒆𝒅 𝒔𝒐 𝒊𝒇 𝒘𝒆'𝒗𝒆 𝒊𝒏𝒕𝒆𝒓𝒂𝒄𝒕𝒆𝒅 𝒇𝒐𝒓 𝒂 𝒍𝒊𝒕𝒕𝒍𝒆 𝒃𝒊𝒕, 𝒂𝒔𝒌 𝒊𝒇 𝒚𝒐𝒖'𝒅 𝒍𝒊𝒌𝒆 𝒕𝒐 𝒃𝒆 𝒂𝒅𝒅𝒆𝒅!!
 
+<p align="center">
+  ✧
+
+<p align="center">  
+𝑼𝒔𝒖𝒂𝒍𝒍𝒚 𝒂𝒕 𝒕𝒉𝒆 𝒍𝒆𝒈𝒐 , 𝒔𝒐𝒏𝒊𝒄 , 𝒎𝒉𝒂 𝒂𝒓𝒆𝒂𝒔 𝒃𝒖𝒕 𝑰 𝒂𝒍𝒔𝒐 𝒘𝒂𝒏𝒅𝒆𝒓 𝒕𝒉𝒆 𝒎𝒂𝒑!! 
 
 <img width="734" height="116" alt="17817633717776878554477519410369" src="https://github.com/user-attachments/assets/3ec17f5b-af2f-4e3c-b4ac-2c751755d170" />
 
--⏔⏔⏔⏔⏔ -꒰ 𝒊𝒎𝒂𝒈𝒆/𝒑𝒇𝒑 𝒄𝒓𝒆𝒅𝒊𝒕𝒔 - [𝒗𝒂𝒍𝒆𝒏𝒓𝒆𝒑𝒆𝒕𝒕𝒐](https://www.tumblr.com/valenrepetto/761466087115194368/armor-study-for-lance-and-wip-drop-i-wonder-what?source=share) ꒱- ⏔⏔⏔⏔⏔-
+⏔⏔⏔⏔ -꒰ 𝒊𝒎𝒂𝒈𝒆/𝒑𝒇𝒑 𝒄𝒓𝒆𝒅𝒊𝒕𝒔 - [𝒗𝒂𝒍𝒆𝒏𝒓𝒆𝒑𝒆𝒕𝒕𝒐](https://www.tumblr.com/valenrepetto/761466087115194368/armor-study-for-lance-and-wip-drop-i-wonder-what?source=share) ꒱- ⏔⏔⏔⏔
