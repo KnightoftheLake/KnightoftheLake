@@ -3,8 +3,14 @@
 
   <img width="734" height="164" alt="17817622552905897123718462879480" src="https://github.com/user-attachments/assets/23d0ed0f-c50a-44db-8964-f27ed5f7c0ac" />
 
-
----‧₊˚| [𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆](https://thekingsshadow.straw.page/) -❀- [𝕬𝒕𝒂𝒃𝒐𝒐𝒌](https://thekingsshadow.atabook.org/?page=1) -❀- [𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄](https://pronouns.cc/@TheKingsShadow) |˚₊‧---
+<div align="center">
+---‧₊˚|
+ <a href="https://thekingsshadow.straw.page/">𝕾𝒕𝒓𝒂𝒘𝒑𝒂𝒈𝒆</a>
+-❀-
+ <a href="https://thekingsshadow.atabook.org/?page=1">𝕬𝒕𝒂𝒃𝒐𝒐𝒌</a>
+-❀-
+ <a href="https://pronouns.cc/@TheKingsShadow">𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄</a>
+|˚₊‧---
 </div>
 
 <img width="896" height="632" alt="17817632519646086983173050445209" src="https://github.com/user-attachments/assets/2ad5ff5a-960a-4768-9d3c-124f9a64f9b8" />
@@ -32,4 +38,7 @@
 
 <img width="734" height="116" alt="17817633717776878554477519410369" src="https://github.com/user-attachments/assets/3ec17f5b-af2f-4e3c-b4ac-2c751755d170" />
 
-⏔⏔⏔⏔ -꒰ 𝒊𝒎𝒂𝒈𝒆/𝒑𝒇𝒑 𝒄𝒓𝒆𝒅𝒊𝒕𝒔 - [𝒗𝒂𝒍𝒆𝒏𝒓𝒆𝒑𝒆𝒕𝒕𝒐](https://www.tumblr.com/valenrepetto/761466087115194368/armor-study-for-lance-and-wip-drop-i-wonder-what?source=share) ꒱- ⏔⏔⏔⏔
+<div align="center">
+ ⏔⏔⏔⏔ -꒰ 𝒊𝒎𝒂𝒈𝒆/𝒑𝒇𝒑 𝒄𝒓𝒆𝒅𝒊𝒕𝒔 -  <a href="https://www.tumblr.com/valenrepetto/761466087115194368/armor-study-for-lance-and-wip-drop-i-wonder-what?source=share">𝒗𝒂𝒍𝒆𝒏𝒓𝒆𝒑𝒆𝒕𝒕𝒐</a>
+ ꒱- ⏔⏔⏔⏔
+</div>
