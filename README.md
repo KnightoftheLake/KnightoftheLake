@@ -12,9 +12,6 @@
  <a href="https://pronouns.cc/@TheKingsShadow">𝕻𝒓𝒐𝒏𝒐𝒖𝒏𝒔.𝒄𝒄</a>
 |˚₊‧---
 </div>
-
-<p align="center">
-𝒅𝒊𝒔𝒄𝒐𝒓𝒅 - .knightofthelake.
   
 <img width="896" height="632" alt="17817632519646086983173050445209" src="https://github.com/user-attachments/assets/2ad5ff5a-960a-4768-9d3c-124f9a64f9b8" />
   
